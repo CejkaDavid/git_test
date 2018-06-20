@@ -1,0 +1,1 @@
+Toto je můj první projekt, začátek slibné kariéry a.k.a. Jsem krális, který zbohatne :D.
